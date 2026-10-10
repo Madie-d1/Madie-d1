@@ -2,7 +2,7 @@
 - 👀 I’m interested in Networking at smiliar IT work
 - 🌱 I’m currently learning Networking, switches, and more.
 - 💞️ I’m looking to collaborate on celeste (The game)
-- 📫 How to reach me: Don't please!
+- 📫 How to reach me: Not active enough, so don't attempt to reach out.
 - 😄 Pronouns: She/Her
 
 <!---
