@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Madie-d1
 - 👀 I’m interested in Networking and similar IT work
 - 🌱 I’m currently learning Networking, switches, and more.
-- 💞️ I’m looking to collaborate on Celeste (The game)
+- 💞️ I’m looking to collaborate on Celeste (The game) and Maybe other work
 - 📫 How to reach me: Not active enough, so don't attempt to reach out.
 - 😄 Pronouns: She/Her
 
